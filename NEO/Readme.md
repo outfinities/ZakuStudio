@@ -1,1 +1,0 @@
-Neo-Valkyrie from Miniworld
